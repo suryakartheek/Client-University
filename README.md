@@ -1,1 +1,1 @@
-https://suryakartheek.github.io/collage-website/
+https://suryakartheek.github.io/Client-University/
